@@ -1,1 +1,1 @@
-# janbaaznew.github.io
+# janbaaznew.github.com
